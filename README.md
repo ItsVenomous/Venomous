@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kxlici
+- 👋 Hi, I’m Venomous
 - 👀 I’m interested in Video Games and Scripting
 - 🌱 I’m currently learning Life
 - 💞️ I’m looking to collaborate on Translations
