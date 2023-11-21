@@ -3,9 +3,9 @@ Hi 👋, I'm Leo
 A passionate learner from China
 
 
-🔭 I’m currently working on pro-react-admin
+🔭 I’m currently working on Python projects
 
-🌱 I’m currently learning React,NodeJs, Remix, GraphQL, Prisma, MongoDB, Docker, Qiankun, DevOps
+🌱 I’m currently learning Ruby
 
 👨‍💻 All of my projects are available at https://github.com/ItVenomous
 
