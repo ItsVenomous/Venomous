@@ -9,7 +9,7 @@ A passionate learner from China
 
 🌱 I’m currently learning Ruby
 
-👨‍💻 All of my projects are available at https://github.com/ItVenomous
+👨‍💻 All of my projects are available at https://github.com/ItsVenomous
 
 📫 Reach me by leolin7180@gmail.com or Venomous#1000 on Discord
 
