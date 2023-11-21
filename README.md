@@ -1,5 +1,4 @@
-![ezgif com-resize (1)](https://github.com/ItsVenomous/ItsVenomous/assets/104592743/b4aa1782-5b6f-4dba-ba29-5e9c89f579dd)
-
+![ezgif com-resize (2)](https://github.com/ItsVenomous/ItsVenomous/assets/104592743/5c7fc04b-910f-4862-ac40-cb79b51d1970)
 Hi 👋, I'm Leo
 
 A passionate learner from China
