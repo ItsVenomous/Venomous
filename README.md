@@ -1,4 +1,4 @@
-![ezgif com-resize](https://github.com/ItsVenomous/ItsVenomous/assets/104592743/9c0a6311-f076-4650-aa12-714d83fc8ebd)
+![ezgif com-resize (1)](https://github.com/ItsVenomous/ItsVenomous/assets/104592743/b4aa1782-5b6f-4dba-ba29-5e9c89f579dd)
 
 Hi 👋, I'm Leo
 
