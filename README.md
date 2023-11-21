@@ -1,4 +1,4 @@
-![anime-anime-girl](https://github.com/ItsVenomous/ItsVenomous/assets/104592743/85fb0671-f693-4cdd-8263-7ba88b6d4e9e)
+![ezgif com-resize](https://github.com/ItsVenomous/ItsVenomous/assets/104592743/9c0a6311-f076-4650-aa12-714d83fc8ebd)
 
 Hi 👋, I'm Leo
 
