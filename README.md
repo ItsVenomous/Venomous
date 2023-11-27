@@ -11,6 +11,6 @@ A passionate learner from China, Only been programming for 3 years!
 
 👨‍💻 All of my projects are available at https://github.com/ItsVenomous
 
-📫 Reach me by leolin7180@gmail.com or itsvenomous on Discord
+📫 Reach me by itsvenomous on Discord
 
 ⚡ Fun Fact: I'm a **HUGE** Anime Fan
