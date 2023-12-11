@@ -1,4 +1,4 @@
-![1500x500 (1)](https://github.com/ItsVenomous/ItsVenomous/assets/104592743/55290043-9b47-42c9-ac3f-fd2c9d45fa4e)
+![1500x500 (3) (1)](https://github.com/ItsVenomous/ItsVenomous/assets/104592743/90617103-204a-47ff-8ed3-f89a4739a91e)
 
 Hi 👋, I'm Leo
 
