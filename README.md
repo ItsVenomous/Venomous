@@ -2,7 +2,7 @@
 
 Hi 👋, I'm Leo
 
-A passionate learner from China, only been programming for around 3 years!
+A passionate learner from China, have been programming for around 3 years!
 
 
 🔭 I’m currently working on Python projects
